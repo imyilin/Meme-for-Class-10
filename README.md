@@ -2,6 +2,24 @@
 
 ### 本站立志收集全套表情包（滑稽）
 ### 欢迎投稿至  ryl666@outlook.com  ！！！
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(1).jpg)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(1).png)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(2).png)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(3).png)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(4).jpg)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(4).png)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(5).jpg)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(5).png)
+
+![pic](https://gitee.com/yilinya/imagebed/raw/master/c-%20(6).png)
+
 ![pic](https://gitee.com/yilinya/imagebed/raw/master/a-%20(2).jpg)
 
 ![pic](https://gitee.com/yilinya/imagebed/raw/master/a-%20(3).jpg)
